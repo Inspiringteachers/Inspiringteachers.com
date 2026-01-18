@@ -1,0 +1,2 @@
+# Inspiringteachers.com
+Inspiring Teachers 
